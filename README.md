@@ -1,1 +1,1 @@
-update by minh
+update chap2
